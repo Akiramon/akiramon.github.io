@@ -1,1 +1,0 @@
-# akiramon.github.io
